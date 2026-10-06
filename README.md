@@ -1,0 +1,2 @@
+# premium-rokkaku-kite-001-rokkaku-six-sided-kite-battl
+Tracking rokkaku battle stats, wind conditions, and craft designs across scattered notes is slowing down your kite-flying season. The Rokkaku Six-Sided Kite &amp; Battle Craft Hub consolidates everything you need to master the art of Japanese rokkaku fighting in one organized, searchable Notion workspace.  This isn't just a template—it's your complete
